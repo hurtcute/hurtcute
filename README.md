@@ -27,6 +27,9 @@
       <br>
 　         　　 $\color{#877a6c}{suspected　𓊈 MDD 𓊉　𓊈 alexithymia 𓊉}$
              <br>
+  　         　　 $\color{#877a6c}{hypersexual　ᛝ　age-regressor}$
+      <br>
+      <br>
              　         　　 $\color{#877a6c}{im~a~bit~dense~at~times~so~pls~be~patient:(}$
                           <br>
 <br>
