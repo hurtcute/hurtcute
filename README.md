@@ -2,6 +2,7 @@
 
 
 <p> wip </p>
-<img width="590" height="491" alt="image" src="https://github.com/user-attachments/assets/afae67b0-348a-483e-96a2-ed7208beb7a6" />
-
+thank you to all my friends that left a message on my tree <3 i love you all!!!! 
+have a good holiday!!
+also please whoever "guesswho" is come talk to me:(( i wanna talk to you I WANNA KNOW WHO YO UARE
 
